@@ -30,7 +30,7 @@
 
 ### 사이트 홍보
 
-`(https://wnsgh0421.github.io/wnsgh-_page/)`이거 많이 뿌려.
+`(https://wnsgh0421.github.io/wnsgh-_page/)`이거 많이 뿌려줘.
 
 
 `페북: 우준호                   /                   카톡: junho421W                        /                    디코: 준호다#5272`
