@@ -19,7 +19,7 @@
 [쿠키런 바로가기](https://nefing.com/7700b47)
 
 ### [클릭]↓
-[파고다 할인혜택](https://nefing.com/89c2f81)
+[파고다 수강혜택](https://nefing.com/16b71c4)
 
 [공신닷컴 무료혜택](https://nefing.com/7ac3864)
 
@@ -30,7 +30,7 @@
 
 ### 사이트 홍보
 
-`(https://wnsgh0421.github.io/wnsgh-_page/)`이거 많이 뿌려.
+`(https://wnsgh0421.github.io/wnsgh-_page/)`이거 많이 뿌려줘.
 
 
-`페북: 우준호                   /                   카톡: junho421W                        /                    디코: 준호다#5272`
+`페북: 우준호                   /                   카톡: junho421W                        /                    디코: 준호#5272`
